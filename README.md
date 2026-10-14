@@ -34,7 +34,7 @@ Soy apasionado por convertir datos en decisiones inteligentes.
 
 ## 📫 Conecta conmigo
 
-- 💼 [LinkedIn](tu_url_aqui)
+- 💼 [LinkedIn](www.linkedin.com/in/david-simón-a-505b73136)
 
 
 ---
